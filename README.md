@@ -16,3 +16,15 @@
 
 ### Lecture 6
 #### https://blog.naver.com/kihunbuzz/222640319084
+
+### Lecture 7
+#### https://blog.naver.com/kihunbuzz/222651935003
+
+### Lecture 8
+#### https://blog.naver.com/kihunbuzz/222651935329
+
+### Lecture 9
+#### https://blog.naver.com/kihunbuzz/222651936569
+
+### Lecture 10
+#### https://blog.naver.com/kihunbuzz/222651941157
