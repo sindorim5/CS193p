@@ -40,3 +40,6 @@
 
 ### Lecture 14
 #### https://blog.naver.com/kihunbuzz/222663766910
+
+### Lecture 15, 16
+#### https://blog.naver.com/kihunbuzz/222667157709
